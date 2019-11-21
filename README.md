@@ -9,3 +9,4 @@
 
 ---
 1. [修行入门](https://lore.chuci.info/taurenshaman/mind/520490dbd7bc465181d938ec20622d49)
+2. [人身难得](https://lore.chuci.info/taurenshaman/mind/b87789af835a4c58b506084415d3ad5f)
