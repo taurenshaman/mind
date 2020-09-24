@@ -5,6 +5,7 @@
 [徐公子胜治的修真世界](http://www.chuci.info/view/world/046e142edf2749c4b08f2188bbfb9ab5)
 
 ## 读书笔记汇总：  
+2. [《鬼股》笔记](https://lore.chuci.info/taurenshaman/topic/e14f11be642f4a478ba71699dbebea22)
 3. [《人欲》笔记：若人心可测，能见多少欲望横流？](https://lore.chuci.info/taurenshaman/topic/4eb3983ad053420487a77dd21221b64c)
 7. [《惊门》笔记](https://lore.chuci.info/taurenshaman/topic/4d6b2cbc3bd04c4481ddd0d6b5d3a1e7)
 9. [《方外：消失的八门》笔记](https://lore.chuci.info/taurenshaman/topic/3651eb2d1ab140b19c14653143fca0f3)
